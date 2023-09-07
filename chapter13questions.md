@@ -1,4 +1,4 @@
-##Section One
+## Section One
 1. **explain the significance of: overseas, hernan cortes, portugal, vasco da gama, melaka, chrissy columbus, cuba, ferdinand magellan, john cabot, amerigo vespucci, conquistadors, montezuma, francisco pizarro, encomienda, columbian exhange**
   - The Spanish conquistadors established an **overseas** empire in the Americas
   - Herńan Cortés and his allies colonized the Aztecs, whose monarch, Montezuma, at first invited Cortez before kicking the conquestadors.
