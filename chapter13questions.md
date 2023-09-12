@@ -16,3 +16,18 @@
 The consequences of the collapses of the Aztec and Inca tribes was the enslavement and erasure of the unique cultures
 4. **define encomienda system**
 The legal permission from Spain to use the Natives for labor; they were *supposed* to be protected as people but they ended up being enslaved :(
+## Section Two:
+1. **explain the significance of: colony mercantilism, balance of trade, subsidies, transportation, primary, plantations, triangular trade, Middle Passage, King Afonso, Benin.**
+   - **Colonies** are an important unit of **mercantilism**, the economic theory based on a limited amount of gold.
+   - The **balance of trade**, bringing in less than exported, was essential for countries to get more gold.
+   - Governments increased **subsidies**, payments to assist an industry, and **transportation** to encourage exports.
+   - Southwest Asia was the **primary** market for enslaved Africans.
+   - **Plantations** were large agricultural estates
+   - The **triangular trade** was the paths that connected trade between Europe, Africa, and the American contenents.
+   - The **Middle Passage** was the middle portion of the triangular trade route that enslaved Africans traveled.
+   - **King Afonso** of Congo was concerned about slave trade.
+   - **Benin** was a African state that deteriorated due to people being stolen into slavery
+2. Countries would want a good balance of trade because they want
+3. **Illustrate the triangular trade pattern:**
+   **Europe** ---------------------------> **Africa** --------------------> **Americas** ---------------------------------------> **Europe**
+               british manufactured goods              slaves                              tobacco, molasses, sugar, and cotton
