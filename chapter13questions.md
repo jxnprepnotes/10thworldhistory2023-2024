@@ -1,3 +1,4 @@
+# Chapter 13 Section Reviews
 ## Section One
 1. **explain the significance of: overseas, hernan cortes, portugal, vasco da gama, melaka, chrissy columbus, cuba, ferdinand magellan, john cabot, amerigo vespucci, conquistadors, montezuma, francisco pizarro, encomienda, columbian exhange**
   - The Spanish conquistadors established an **overseas** empire in the Americas
@@ -31,3 +32,22 @@ The legal permission from Spain to use the Natives for labor; they were *suppose
 3. **Illustrate the triangular trade pattern:**
    **Europe** ---------------------------> **Africa** --------------------> **Americas** ---------------------------------------> **Europe**
                british manufactured goods              slaves                              tobacco, molasses, sugar, and cotton
+## Section Three:
+1. Explain significance of: Brazil, peninsulares, creoles, labor, mestizos, mulattoes, mita, draft, Juana Ines de la Cruz.
+  - **Brazil** was dominated by Portugal.
+  - **peninsulares** were Spanish and Portugese official who had beem born in Europe
+  - **Creoles** were descendants of Europeans born in Latin America.
+  - **mestizos** children of intermarriage between Europeans and Natives
+  - **mulattoes** were the offspring of africans and Europeans
+  - **mita** allowed spanish authorities to **draft** native labor to work in mines in peru
+  - **Juana Ines de la Cruz** was a poet who encouraged women to be educated
+
+2. List in order the social classes in colonial Latin America:
+   - peninsulares
+   - Creoles
+   - Mestizos
+   - Mulattoes
+3. Explain how Spanish Empire maintained a supply of labor in Latin american colonies:
+   The spanish empire had a variety of names for slavery 
+
+
