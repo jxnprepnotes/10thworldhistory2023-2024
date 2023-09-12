@@ -58,3 +58,17 @@
 * **Benin** was transformed from a brilliant society into a brutal, war-ravaged region following the introduction of slavery.
 * The use of enslaved Africans was widely accepted until the SOciety of Friends began to condemn it in the 1770s
 * The French abolished slavery in the 1970s; the English abolished slavery in 1807l and slavery continued in the United States until the 1860s;
+## Colonial Empires in Latin America
+* In the 1500s, Portugal controlled Brazil, while Spain's colonial possessions included parts of North America, Central America, and most of South America
+* The area of Central and South America became known as Latin America, and a unique social class system emerged.
+* Colonial Latin America SOcial Order:
+  - ***Peninsulares***: Spanish and Portuguese officials born in Europe; they held all important government positions.
+  - ***Creoles*** Descendants of Europeans who were born in Latin America; they controlled business and land.
+  - ***Mestizos***: The offspring of European and Native American intermarriage.
+  - ***Mulattoes***: The offspring of Africans and Europeans
+  - Conquered Native Americans and enslaved Africans
+* Europeans utilized the Native Americans as **labor**. They used the *encomienda* system and ***mita*** to sustain a viable labor force
+* Gold and silver from the colonies offered immediate wealth to the Europeans. Products, such as tobacco, sugar, and animal hides were traded to Europe in return for finished products.
+* To control their colonial possessions in the AMericas, Portugal and Spain used governor-generals to develop a bureaucracy and carry out imperial policies.
+* Catholic missionaries were also instrumental in converting and maintaining order within the colonial territories.
+* The Catholic CHurch provided an outlet other than marriage for women. Many nuns like **Juana Ines de la cruz**, urged convents to educate women on subjects beyond religion.
