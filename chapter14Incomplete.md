@@ -31,3 +31,20 @@
   - itizens could keep arms and haev a jury trial
   * THe Bill of RIghts ensured that Parliment would be part of the English government and laid the foundation for a constitutional monarchy
   * Parliament also enacted the Tolerance Act of 1689, which granted Puritans, but not Catholics, the right of free public worship.
+## France under Louis XIV
+* **Louis XIV** is regarded as the best example of **absolutism** in the seventeenth ventury
+* Louis XIV strengthened control of the government and stabilized France politically, economically, and socially
+* Prior to Louis XIV becoming king, **Cardinals Richelieu** and Mazrin weakened Protestant power and strengthened royal power.
+* Louis ruled without the assistance of a royal council, and had complete control of foreign policy, the Church, and taxes
+* Jean-Baptiste Colbery helped to make France more powerful economically by improving trade, communivations, transportation, and by creating merchant marine.
+* To ensure that his Bourbon dynasty dominated Europe, Louis developed a standing army and waged four wars between 1667 and 1713.
+* Louis left the legacy of an absolute ruler who strengthened France
+* Louis' political policies and lavish lifestyle left France with great debts and surrounded by enemies.
+## Absolutism in Central and Eastern Europe
+* Following the Thirty Years' War, there were more than three hundred independent German States,
+* **Prussia** and **Austria** rose to become European powers.
+* **Frederick William the Great Elector** laid the foundation for Prussia by creating the fourth-largest military force in Europe.
+* Fredrick William centralized power by setting up the General War Commissariat to levy taxes for the army and govern the state.
+* The new Austrian Empire was established by the Hapsburg family, who had previously provided emerors for the Holy Roman Empire.
+* The Hapsburgs created a new empire, invluding present-day Austria, the Czech Republic, and Hungary.
+* The Austrian monarchy never became a centralized, absolutist state, but remained a collection of territories held together by the Hapsburg emporer.
