@@ -48,3 +48,31 @@
 * The new Austrian Empire was established by the Hapsburg family, who had previously provided emerors for the Holy Roman Empire.
 * The Hapsburgs created a new empire, invluding present-day Austria, the Czech Republic, and Hungary.
 * The Austrian monarchy never became a centralized, absolutist state, but remained a collection of territories held together by the Hapsburg emporer.
+## Peter The Great
+* In sixteenth-century Russia, **Ivan IV** became the first ruler to take title of ***czar***
+* Ivan expanded Russian territory and crushed the power of the ***boyars***. He became known as "Ivan the Terrible"
+* Following the end of Ivan's dynasty in 1598, the national assembly selected ***Micheal Romanov*** as the new czar in 1613
+* In 1689 ***Peter the Great*** became czar. He modernized the military and made Russia a power in European affairs.
+* Peter introduced Russians to the culture of Western Europe, and built the new capital city of St. Petersburg on the Baltic Sea to "open a window to the West."
+## Art after the Renaissance
+* ***Mannerism*** was an art form that emerged in Italy before spreading throughout Europe.
+* Mannerism broke away from the Renaissance principles of balance, harmony, and moderation and represented people as elongated, to show suffering and heightened emotion.
+* The characteristics of Mannerism are reflected in the work of ***El Greco*** whose figures are elongated and contorted
+* A new movement known as ***baroque*** replaced Mannerism. It was embraced by Catholic architecture, especially in the Hapsburg courts of ***Madrid***, ***Prague***, ***Vienna***, and ***Brussels***.
+* Baroque churches and palaces were magnificent and reflected a search for power.
+* The baroque artist ***Gran Lowenzo Bernini*** captured these ideas with his work on Saint Peter's Basilica in Rome.
+## The Golden Age of Literature
+* The story of *Don Quixote* elicits the idea that hard work and visionary dreams are the requisite of the human condition.
+* As in England, Spanish plays became very popular, and touring companies of actors brought current productions to all parts of the empire.
+* ***Lope de Vega*** is the most famous Spanish playwright, writing nearly 1,500 plays that are considered witty, charming realistic, and action-packed
+* The story of *Don Quixote* elicits the idea that hard work and visionary dreams are requisite of the human conditioin.
+* As in England, Spanish plays became very popular, and touring companies of actors brought current productions to all parts of the empire
+* **Lope de Vega** (FINISH THIS)
+## Political Thought
+* Seventeenth-century politcal thinkers Thomas Hobbes and John Locke wrote about politcal power and influenced future philosophies of government.
+* **Thomas Hobbes** wrote *Leviathan* to deal with the problem of disorder.
+* Hobbes asserted that people made a social contract to form a state in exchange for protection and peace. Absolute power was needed to preserve order in society and rebellions must be suppressed.
+* **John Locke** believed that man in his natural state enjoyed freedom and had certain ***natural rights***
+* In Locke's *Two Treatises of Government**, Locke argued against the absolute rule of one person.
+* He stated that the government and the people have mutual obligations to protect each other, and if the government usurps its power, then man has the right to abolish the government
+* Locke's ideas were used by American and French revolutionaries in the eighteenth century, and his infuence can be found in the American Declaration of Independence and the U.S. Constitution. 
